@@ -1,0 +1,1 @@
+https://youtu.be/nXJGVkxbGv4?si=tib_8tFZfffbY96B Melalui tautan ini, tersedia implementasi penerjemahan otomatis dari bahasa Sunda ke bahasa Indonesia, di mana kata dalam bahasa Sunda dapat diterjemahkan langsung ke bahasa Indonesia.
